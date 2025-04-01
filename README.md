@@ -65,6 +65,6 @@ Key Features:
 ## 📫 Let's Connect!
 
   
-- 💼 [LinkedIn](https://linkedin.com/in/yourprofile)
+- 💼 [LinkedIn](https://www.linkedin.com/in/aitsu01-full-stuck-developer/)
 
 
